@@ -1,1 +1,1 @@
-# Earned CompTIA Security+ Cert Prep Credly Badges
+CompTIA Security+ Cert Prep Credly Badges Earned
